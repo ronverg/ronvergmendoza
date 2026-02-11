@@ -1,4 +1,3 @@
-# ronvergmendoza
 # Ronverg Mendoza
 
 Administrative & operations support professional based in Calgary.
